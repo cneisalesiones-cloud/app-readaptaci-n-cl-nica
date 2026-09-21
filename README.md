@@ -1,0 +1,1 @@
+# app-readaptaci-n-cl-nica
